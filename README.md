@@ -8,3 +8,14 @@
   ![tree](https://pixelsafari.neocities.org/favicon/horror/seasonal/christmas20.gif)
 
 ![fox](https://pixelsafari.neocities.org/favicon/horror/seasonal/deer2.gif)
+
+
+<img width="99" height="56" alt="stamp" src="https://github.com/user-attachments/assets/e9ab9051-7cdb-48e8-a884-0ef5d4af03a3" />
+
+ <img width="99" height="56" alt="stamp(1)" src="https://github.com/user-attachments/assets/9473dee6-6406-4d4b-9cb8-184393b3d534" />
+
+<img width="99" height="56" alt="stamp(2)" src="https://github.com/user-attachments/assets/9e050fd3-cae6-4252-96f9-9cf05befb3ab" />
+
+ <img width="99" height="56" alt="stamp(3)" src="https://github.com/user-attachments/assets/18db3d1b-b6a6-4c1b-8002-9b51e7776cff" />
+
+<img width="99" height="56" alt="stamp(4)" src="https://github.com/user-attachments/assets/75447c66-dfcc-4d01-a949-b010aecfe621" />
