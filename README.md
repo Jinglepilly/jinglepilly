@@ -10,6 +10,10 @@
 ![fox](https://pixelsafari.neocities.org/favicon/horror/seasonal/deer2.gif)
 
 
+
+<img width="99" height="56" alt="stamp(5)" src="https://github.com/user-attachments/assets/666714cd-3c49-428d-8a0f-79166e7bb9f2" />
+
+
 <img width="99" height="56" alt="stamp" src="https://github.com/user-attachments/assets/e9ab9051-7cdb-48e8-a884-0ef5d4af03a3" />
 
  <img width="99" height="56" alt="stamp(1)" src="https://github.com/user-attachments/assets/9473dee6-6406-4d4b-9cb8-184393b3d534" />
